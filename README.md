@@ -1,3 +1,3 @@
-it's my own portifolio of my project..
+it's my own portifolio of my project...
+![gif](https://github.com/user-attachments/assets/9fc1e91e-69d6-4c12-bff2-91fbe99ec181)
 
-https://miro.medium.com/v2/resize:fit:1400/0*s7-847-cMWNrfnyH.gif
